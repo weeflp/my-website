@@ -1,8 +1,8 @@
 # my portfolio
 realizing now that I need to work on more projects for my career lolol ahhh 
 stuff:
-- mangroovy work
-- captain of two clubs ehe
+- did some stuff with mangrove ecosystem awareness
+- captain of two clubs at high school ig
 - :3 
 - watched a lot of eurovision
 
